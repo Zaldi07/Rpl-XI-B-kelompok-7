@@ -1,4 +1,4 @@
 # Rpl-XI-B-kelompok-7
-1. James Madison
-2. James Monroe
-3. John Quincy Adams
+1. Muhamad zaldi Nugraha
+2. Muhamad ilham fauzil adhim
+3. Muhamad dendi hafidzin
